@@ -12,7 +12,7 @@
    </th>
   </table>
 
-<img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/cororooroordesd" height="200" >
+<img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/cororooroordesd" height="150" >
 
 <br>
 <br>
@@ -61,7 +61,7 @@
   <div align="center">
 
 
-  <img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/ezgif.com-gif-maker(2).gif" height="210px" >
+  <img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/ezgif.com-gif-maker(2).gif" height="160px" >
 
   <br>
   <br>
