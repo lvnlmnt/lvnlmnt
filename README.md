@@ -6,7 +6,7 @@
       <th>
           $\color{#e9f7ec}{\textsf{"}}$ $\color{#E1F5F4}{\textsf{𝚃𝚑𝚎}}$ $\color{#B8C3CB}{\textsf{𝙵𝚒𝚛𝚜𝚝}}$ $\color{#807E92}{\textsf{𝙳𝚎𝚊𝚝𝚑}}$ $\color{#4E4160}{\textsf{𝙺𝚗𝚎𝚕𝚕.}}$ $\color{#e9f7ec}{\textsf{"}}$ <br>
            <br>  
-          <img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/HME_KB7aAAAU4IR.jpg" height="450px" >
+          <img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/HME_KB7aAAAU4IR.jpg" height="400px" >
 <br>
 
    </th>
