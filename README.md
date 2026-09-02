@@ -16,12 +16,14 @@
 
 <br>
 <br>
-<img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/Ruina-KaleidoscopeofButterflies.webp.png" height="30" >
-<img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/Ruina-KaleidoscopeofButterfliesmirrored.png" height="30" >
 <img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/G7bAB1jXwAESqd3.png" height="30" >
 <img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/G7bAB1PXAAA3us7.png" height="30" >
-<br>
-<br>
+
+<img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/Ruina-KaleidoscopeofButterflies.webp.png" height="30" > $\color{#392447}{\textsf{⁀જ}}$ $\color{#E1F5F4}{\textsf{𝙱𝚕𝚞}}$ $\color{#B8C3CB}{\textsf{/𝙱𝚕𝚘𝚘}}$ $\color{#4E4160}{\textsf{✧}}$ $\color{#807E92}{\textsf{𝙹𝚘𝚗𝚊𝚑}}$ $\color{#807E92}{\textsf{✧}}$ $\color{#4E4160}{\textsf{𝚂𝚒𝚏}}$ $\color{#B8C3CB}{\textsf{✧}}$ $\color{#392447}{\textsf{𝚂𝚘𝚕𝚎𝚖𝚗}}$  $\color{#e9f7ec}{\textsf{໒}}$ <img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/Ruina-KaleidoscopeofButterfliesmirrored.png" height="30" >
+<br> <br> $\color{#e9f7ec}{\textsf{⊰══════════⊱}}$
+<br> <br> $\color{#E1F5F4}{\textsf{𝚕𝚘𝚌𝚊𝚕 𝚗𝚊𝚖𝚎 𝚑𝚘𝚊𝚛𝚍𝚎𝚛}}$ $\color{#B8C3CB}{\textsf{(𝚊𝚗𝚍 𝚝𝚑𝚒𝚎𝚏/𝚜𝚒𝚕𝚕𝚢)}}$
+
+
 <br>
 <br>
 <br>
