@@ -25,12 +25,11 @@
 
 
 <br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
+
+<img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/G7bAB1jXwAESqd3.png" height="20" > $\color{#E1F5F4}{\textsf{𝙸𝚝}}$ $\color{#4E4160}{\textsf{✧}}$ $\color{#807E92}{\textsf{𝙷𝚎}}$ $\color{#807E92}{\textsf{✧}}$ $\color{#4E4160}{\textsf{𝙰𝚗𝚢}}$ $\color{#392447}{\textsf{𝙽𝚎𝚘𝚜}}$ <img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/G7bAB1PXAAA3us7.png" height="20" >
+
+<img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/G7bAB1PXAAA3us7.png" height="20" >
+<img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/G7bAB1jXwAESqd3.png" height="20" >
 <br>
 
 <img src="https://komarev.com/ghpvc/?username=lvnlmnt&color=B8C3CB&style=for-the-badge&label=For+the+dead,+the+first+bell+tolls.">
