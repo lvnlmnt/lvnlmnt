@@ -31,7 +31,7 @@
 <br>
 <br>
 
-<img src="https://komarev.com/ghpvc/?username=lvnlmnt&color=e9f7ec&style=for-the-badge&label=For+the+dead,+the+first+bell+tolls.">
+<img src="https://komarev.com/ghpvc/?username=lvnlmnt&color=B8C3CB&style=for-the-badge&label=For+the+dead,+the+first+bell+tolls.">
 
   <br>
     <br>
@@ -80,7 +80,7 @@
   <table border="1" align="center">  
       <td>
       <details>
-        <summary> art cred </summary>
+        <summary> $\color{#E1F5F4}{\textsf{art cred}}$ </summary>
         pfp : skrrra (tmblr)
         <br> butterflies : spectranl (twt) <img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/G7bAB1PXAAA3us7.png" height="20" > <img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/G7bAB1jXwAESqd3.png" height="20" >
         <br> art : gotanonobus & k1ml_999 (twt)
@@ -88,13 +88,16 @@
          </td> 
       <td>
       <details>
-        <summary> friends... </summary>
-        @lovelettr  <br> @RHY5-W1NZ  <br> @ROTTINGMOON  <br> @theknocker 
+        <summary> $\color{#807E92}{\textsf{friends...}}$ </summary>
+        @lovelettr  <br> @RHY5-W1NZ  <br> @ROTTINGMOON  <br> @theknocker <br> @Circuitsboard (my beloved joyfriend<3)
       </details>
-         </td>
-      <td>
+         </td>    
+      </table>
+
+ <table border="1" align="center">  
+  <td>
       <details>
-        <summary> my... hoard (oops) </summary>
+        <summary> $\color{#4E4160}{\textsf{my... hoard (oops)}}$ </summary>
          <br> i try to decorate all of them  <br> whenever i get the inspiration...
       <br>  <br>
         Decorated properly : -- <br> @Diispatch @underthebedrock
