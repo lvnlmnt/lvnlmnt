@@ -64,23 +64,26 @@
 
   <img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/ezgif.com-gif-maker(2).gif" height="160px" >
 
-  <br>
-  <br>
-  <br>
-  <br>
-  <br>
-  <br>
-  <br>
-    <br>
-      <br>
+ <br>
+<br>
+<img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/G7bAB1jXwAESqd3.png" height="20" >
+<img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/G7bAB1PXAAA3us7.png" height="20" >
+
+<img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/Ruina-KaleidoscopeofButterflies.webp.png" height="20" > I block(hide) freely, although it is rare. I will do so for my own comfort at any time. 
+<br> <img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/Ruina-KaleidoscopeofButterflies.webp.png" height="20" > $\color{#E1F5F4}{\textsf{DNI basic criteria, under 18, drama starters,}}$
+<br> syscourse...whatever else.
+
+<br> <br> $\color{#e9f7ec}{\textsf{⊰══════════⊱}}$
+
+<br> <br> $\color{#B8C3CB}{\textsf{I'm usually offtab or afk,}}$
+<br> $\color{#B8C3CB}{\textsf{i swear i don't ignore people on purpose...}}$
+
+
+<img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/G7bAB1PXAAA3us7.png" height="20" >
+<img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/G7bAB1jXwAESqd3.png" height="20" >
+<br>
         <br>
-          <br>
-            <br>
-              <br>
-              <br>
-              <br>
-              <br>
-              <br>
+⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/tumblr_f1feab69f5d61968fe3de1a63b568092_67ca5284_1280.png" height="150" >
               <br>
               <br>
               <br>
