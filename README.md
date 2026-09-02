@@ -55,7 +55,7 @@ hyperfixated on limbus company and minecraft horror atm...
 <img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/G7bAB1PXAAA3us7.png" height="20" >
 <br> 
 <img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/tumblr_fbcb6cc8463fb5338e7fc7564fc81517_27a64d43_400.png" height="50" >
-<br>
+<br> <br>
 <img src="https://file.garden/ZfRta4uUh3asFRHD/yi%20sang%20jesus/tumblr_687b631c6f84be0eb1a7c2cd7f078455_5d5171d3_640.png" alt="divider" width="1000"> <br> <br>
 
    $\color{#e9f7ec}{\textsf{"}}$ $\color{#E1F5F4}{\textsf{𝚏𝚘𝚛 𝚢𝚘𝚞𝚛 𝚏𝚞𝚗𝚎𝚛𝚊𝚕}}$ $\color{#B8C3CB}{\textsf{𝚙𝚢𝚛𝚎 𝚜𝚑𝚊𝚕𝚕 𝚌𝚘𝚖𝚎}}$ $\color{#807E92}{\textsf{𝚊𝚕𝚒𝚐𝚑𝚝 𝚒𝚗 𝚝𝚑𝚎}}$ $\color{#4E4160}{\textsf{𝚐𝚛𝚒𝚎𝚟𝚘𝚞𝚜 𝚏𝚞𝚜𝚒𝚕𝚕𝚊𝚍𝚎 𝚘𝚏}}$ $\color{#392447}{\textsf{𝚋𝚞𝚝𝚝𝚎𝚛𝚏𝚕𝚒𝚎𝚜!}}$ $\color{#e9f7ec}{\textsf{"}}$ 
