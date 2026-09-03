@@ -118,7 +118,7 @@ hyperfixated on limbus company and minecraft horror atm...
       <td>
       <details>
         <summary> $\color{#807E92}{\textsf{friends...}}$ </summary>
-        @lovelettr  <br> @RHY5-W1NZ  <br> @ROTTINGMOON  <br> @theknocker <br> @Circuitsboard (my beloved joyfriend<3)
+       <a href="https://github.com/lovelettr">Lovelettr</a> <a href="https://github.com/RHY5-W1NZ">RHY5-W1NZ</a> <a href="https://github.com/ROTTINGMOON">ROTTINGMOON</a> <a href="https://github.com/theknocker">theknocker</a> <a href="https://github.com/Circuitsboard">Circuitsboard <3</a>
       </details>
          </td>    
       </table>
@@ -129,11 +129,11 @@ hyperfixated on limbus company and minecraft horror atm...
         <summary> $\color{#4E4160}{\textsf{my... hoard (oops)}}$ </summary>
          <br> i try to decorate all of them  <br> whenever i get the inspiration...
       <br>  <br>
-        Decorated properly : -- <br> @Diispatch @underthebedrock
+        Decorated properly : -- <br>  <a href="https://github.com/diispatch">Diispatch</a> <a href="https://github.com/underthebedrock">underthebedrock</a>
         <br>  <br>
-        Decorated (layout copied off of eachother lmao) : -- <br> @ASS1MILATE @Cxrnifex @xXAce0fspadesXx
+        Decorated (layout copied off of eachother lmao) : -- <br> <a href="https://github.com/ass1milate">ASS1MILATE</a> <a href="https://github.com/Cxrnifex">Cxrnifex</a> <a href="https://github.com/xxace0fspadesxx">xXAce0fSpadesXx</a>
         <br>  <br>
-        Needs decorating... : -- <br> @LostInferno @Raydiantabyss @crossroadsmustfall  <br> @monsterfuckerarg
+        Needs decorating... : -- <br> <a href="https://github.com/lostinferno">lostinferno</a> <a href="https://github.com/raydiantabyss">raydiantabyss</a> <a href="https://github.com/crossroadsmustfall">crossroadsmustfall</a> <br> <a href="https://github.com/monsterfuckerarg">monsterfuckerarg</a>
       </details>
          </td>
            </table>
